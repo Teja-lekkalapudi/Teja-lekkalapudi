@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi! Teja Here...
 2nd Year B.Tech Student @ PES University<br>🚀 Passionate about Technology & Innovation<br>💼 Actively looking for Internship Opportunities | Let’s connect!
 
 
